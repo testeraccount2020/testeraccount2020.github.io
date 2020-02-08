@@ -1,1 +1,1 @@
-# testeraccount2020.github.io
+# UGA-Workshop-Tutorial
